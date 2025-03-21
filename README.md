@@ -1,1 +1,1 @@
-Tech website company
+German website company
